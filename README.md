@@ -34,4 +34,4 @@ I am a software engineer living in Germany and passionate about mixed reality te
 
 #### 📫 How to reach me: ...
 
-Twitter: https://twitter.com/dfejzagic
+Twitter: https://twitter.com/_din0m1te
